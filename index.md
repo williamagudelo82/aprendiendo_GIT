@@ -1,3 +1,3 @@
 ## Welcome to my GitHub website !!
 
-I'm very pleasure for make my fisrt page
+I am very happy to make my first page.
